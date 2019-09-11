@@ -1,1 +1,11 @@
-Replace this with a list of your favorite things.
+My Favourite Things:
+
+1. vixx
+
+2. vixx
+
+3. vixx
+
+4. vixx
+
+5. vixx
